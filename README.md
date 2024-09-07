@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/34f36def-c6c8-4785-aeed-f581a68b6d7c)# mudasir
+# mudasir
 My introduction Profile
 
 # 💫 About Me:
